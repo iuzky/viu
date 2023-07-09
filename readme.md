@@ -1,3 +1,5 @@
+![image](https://github.com/Archereign/viu/assets/138429821/ddfd5bb1-93f8-4d57-b828-7d31330da1f8)
+
 # Script Berbayar
 
 - Mohon untuk tidak mengganti credit
